@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bowen-wy
 - 👀 I’m interested in Ecology
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning in East China Normal University.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me bowen_w@qq.com
 
